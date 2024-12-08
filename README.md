@@ -1,4 +1,4 @@
-# Too buys to make cool profile
+# Too busy to make cool profile
 
 [Linkedin ](https://www.linkedin.com/in/edu-borrego-subirada/)
 
